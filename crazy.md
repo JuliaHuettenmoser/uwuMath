@@ -1,1 +1,1 @@
-crazy?
+crazy? i was crazy once. they locked me in a room. a rubber room. a rubber room with rats and rats make me crazy.
